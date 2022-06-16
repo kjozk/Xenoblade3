@@ -4,14 +4,17 @@
 
 ### 公式サイト（日本）
 [Xenoblade3（ゼノブレイド3） \| Nintendo Switch \| 任天堂](https://www.nintendo.co.jp/switch/az3ha/)
+
 生きるために戦い、戦うために生きる。過去と未来をつなぐ、命の物語。 2022年7月29日（金）発売、Nintendo Switch『Xenoblade3（ゼノブレイド3）』の公式サイトです。
 
 ### 公式Twitter
 [ゼノブレイド総合Twitterアカウント](https://twitter.com/XenobladeJP)
+
 『ゼノブレイド』シリーズの公式アカウントです。モノリスソフト唯一のノポン社員"モノポン"が、ソフトに関するお知らせなどなどをお届けします。シリーズ最新作Nintendo Switch『ゼノブレイド3』は2022年7月29日発売。※ご質問・お問い合わせにはお答えしておりませんのでご容赦ください。
 
 ### Nintendo of America 公式サイト
 [Xenoblade Chronicles™ 3 for Nintendo Switch - Nintendo](https://www.nintendo.com/store/products/xenoblade-chronicles-3-switch/)
+
 Join Noah and Mio, members of the two opposing nations of Keves and Agnus, on a heartfelt journey through a rich **open world** to end the cycle of violence. A group of six characters from these nations join together to awaken the colonies of Aionios and exp…
 
 ## 動画一覧
