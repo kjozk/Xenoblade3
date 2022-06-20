@@ -25,6 +25,15 @@ Join Noah and Mio, members of the two opposing nations of Keves and Agnus, on a 
 ### ゼノブレイド3 2nd トレーラー
 [![ゼノブレイド3 2nd トレーラー](https://img.youtube.com/vi/-gKdPWj-Vm4/0.jpg)](https://www.youtube.com/watch?v=-gKdPWj-Vm4)
 
+### ゼノブレイド3 Direct 2022.6.22
+[![ゼノブレイド3 Direct 2022.6.22](https://img.youtube.com/vi/nWZza3jcWQQ/0.jpg)](https://www.nintendo.co.jp/nintendo_direct/20220622/index.html)
+
+6月22日（水）23時より「ゼノブレイド3 Direct 2022.6.22」を放送します。
+
+7月29日（金）発売の『Xenoblade3（ゼノブレイド3）』に関する情報をお届けします。
+
+放送時間は約20分です。
+
 ## ゼノブレイド ノート
 
 モノポンのツイートは、ゼノブレイドノートで網羅ができているはず
