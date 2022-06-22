@@ -25,6 +25,10 @@ Join Noah and Mio, members of the two opposing nations of Keves and Agnus, on a 
 ### ゼノブレイド3 2nd トレーラー
 [![ゼノブレイド3 2nd トレーラー](https://img.youtube.com/vi/-gKdPWj-Vm4/0.jpg)](https://www.youtube.com/watch?v=-gKdPWj-Vm4)
 
+### ゼノブレイド3 3rd トレーラー
+[![ゼノブレイド3 3rd トレーラー](https://img.youtube.com/vi/_LJM3qMfNEQ/0.jpg)](https://www.youtube.com/watch?v=_LJM3qMfNEQ)
+
+
 ### ゼノブレイド3 Direct 2022.6.22
 [![ゼノブレイド3 Direct 2022.6.22](https://img.youtube.com/vi/nWZza3jcWQQ/0.jpg)](https://www.nintendo.co.jp/nintendo_direct/20220622/index.html)
 
