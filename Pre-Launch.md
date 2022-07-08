@@ -63,12 +63,21 @@ Join Noah and Mio, members of the two opposing nations of Keves and Agnus, on a 
 『ゼノブレイド3』のフィールドの歩き方をご紹介。 
 
 ### ゼノブレイド ノート vol. 4
-[![ゼノブレイド ノート vol. 4 ](https://topics-cdn.nintendo.co.jp/image/2022/05/31073317546998/800/banner.jpg)](https://topics.nintendo.co.jp/article/a4c0a78d-e993-4fae-8c8e-62c5927040fa)
+[![ゼノブレイド ノート vol. 4](https://topics-cdn.nintendo.co.jp/image/2022/05/31073317546998/800/banner.jpg)](https://topics.nintendo.co.jp/article/a4c0a78d-e993-4fae-8c8e-62c5927040fa)
 
 『ゼノブレイド3』の技（アーツ）を徹底解説。
 
 ### ゼノブレイド ノート vol. 5
-[![ゼノブレイド ノート vol. 5 ](https://topics-cdn.nintendo.co.jp/image/2022/06/13014351727082/0/banner.jpg)](https://topics.nintendo.co.jp/article/f86dd1d6-9eff-45ca-b244-fdb1174b4c84)
+[![ゼノブレイド ノート vol. 5](https://topics-cdn.nintendo.co.jp/image/2022/06/13014351727082/0/banner.jpg)](https://topics.nintendo.co.jp/article/f86dd1d6-9eff-45ca-b244-fdb1174b4c84)
 
 『ゼノブレイド3』の冒険の助けについてご紹介。
 
+### ゼノブレイド ノート vol. 6
+[![ゼノブレイド ノート vol. 6](https://topics-cdn.nintendo.co.jp/image/2022/06/20014316040043/0/banner.jpg)](https://topics.nintendo.co.jp/article/95795fc0-a0ce-470c-bb98-9456adba1a99)
+
+追加コンテンツ「ゼノブレイド3 エキスパンション・パス」も予約開始。
+
+### ゼノブレイド ノート vol. 7
+[![ゼノブレイド ノート vol. 7](https://topics-cdn.nintendo.co.jp/image/2022/07/07021311049344/0/banner.jpg)](https://topics.nintendo.co.jp/article/41a14f0e-6052-4373-b98a-e589dd13ab63)
+
+さらに、バトルをもっとご紹介。
