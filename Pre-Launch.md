@@ -38,6 +38,21 @@ Join Noah and Mio, members of the two opposing nations of Keves and Agnus, on a 
 
 放送時間は約20分です。
 
+### ゼノブレイド3 CM1
+[![ゼノブレイド CM1](https://img.youtube.com/vi/HW2_mjlyN0s/0.jpg)](https://www.youtube.com/watch?v=HW2_mjlyN0s)
+
+### ゼノブレイド3 CM2
+[![ゼノブレイド CM2](https://img.youtube.com/vi/PYut-kUCaVg/0.jpg)](https://www.youtube.com/watch?v=PYut-kUCaVg)
+
+### ゼノブレイド3 CM3
+[![ゼノブレイド CM3](https://img.youtube.com/vi/FaptyetroRY/0.jpg)](https://www.youtube.com/watch?v=FaptyetroRY)
+
+### ゼノブレイド3 CM4
+[![ゼノブレイド CM4](https://img.youtube.com/vi/9iyFdz1fRWY/0.jpg)](https://www.youtube.com/watch?v=9iyFdz1fRWY)
+
+
+
+
 ## ゼノブレイド ノート
 
 モノポンのツイートは、ゼノブレイドノートで網羅ができているはず
