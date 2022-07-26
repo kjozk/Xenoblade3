@@ -51,6 +51,12 @@ Join Noah and Mio, members of the two opposing nations of Keves and Agnus, on a 
 [![ゼノブレイド CM4](https://img.youtube.com/vi/9iyFdz1fRWY/0.jpg)](https://www.youtube.com/watch?v=9iyFdz1fRWY)
 
 
+##
+
+### 開発者に訊きました : ゼノブレイド3｜任天堂
+[![開発者に訊きました : ゼノブレイド3｜任天堂](https://www.nintendo.co.jp/interview/az3ha/sns.png)](https://www.nintendo.co.jp/interview/az3ha/index.html)
+
+『ゼノブレイド3』の開発者に話を訊いてみました。
 
 
 ## ゼノブレイド ノート
